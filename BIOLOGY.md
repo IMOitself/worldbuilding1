@@ -1,4 +1,3 @@
 - contrary to popular belief, only small animals exist in this land
 - monsters and dragons are just myths. ppl believe in those.
 - fat frogs.
-- 
