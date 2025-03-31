@@ -1,0 +1,3 @@
+- glass and inventions came from the other side of the ocean.
+- weapon forging are taught by the foreign people of the other side
+- 

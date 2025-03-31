@@ -1,0 +1,3 @@
+- slimes (wip) are just a mutated slug shaped like a humanoid.
+- slimes store loot on their rib cage. its the only part in their body where its bones
+- 
