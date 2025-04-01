@@ -1,3 +1,6 @@
-- contrary to popular belief, only small animals exist in this land
+- contrary to popular belief, only small animals exist in this land.
+- i.e if there is a big animal, only the smallest species of it is considered.
+- e.g horse. only falabella exist.
 - monsters and dragons are just myths. ppl believe in those.
 - fat frogs.
+- Tonkin, mistaken to be a dragon. actually a mossy frog.
