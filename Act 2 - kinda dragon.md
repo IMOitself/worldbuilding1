@@ -1,4 +1,4 @@
-You is now a celebrity because of the Legendary Can of Tuna.
+You is now popular in the village because of the Legendary Can of Tuna.
 
 Sir Totally is the only person who is unamused by the legendary can.
 
@@ -6,7 +6,7 @@ Sir Totally only thinks of being in the role of The Chosen One.
 
 Sir Totally weilds a very expensive sword and has a decent amount of soldiers with him. 
 
-So he is finding a tall old person which is why he went to the village.
+He is finding a tall 
 
 You met sir Totally on the road. 
 "I, sir Totally, asking you to lead me to a village"

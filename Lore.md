@@ -1,0 +1,7 @@
+- post apocalyptic 
+- pseudo fantasy
+- medieval era. swords 
+- few ancient books survived, teaching people how to name things
+- The Collector drops some (modern day) Cans around the world
+- slime humanoids are genetically modified slugs.
+- as well as giant animals that are mistaken to be a dragon like armadillo guilded lizard
