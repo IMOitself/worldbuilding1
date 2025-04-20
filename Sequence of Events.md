@@ -1,11 +1,11 @@
 Act 1
-You met Ms. Basket
-Ms. Basket goes to Eggfed village
-You followed Ms. Basket
-Eggfeds doesn't allow you to pass
-
-You got rewarded with the legendary 'Can of Tuna'
+In the Eggfed Village
+Got the legendary 'Can of Tuna'
 
 Act 2
+Met sir Totally.
+Defeat Tonkin.
+
+Act 3
 
 

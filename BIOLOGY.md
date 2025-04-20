@@ -5,3 +5,6 @@
 - fat frogs. bread frogs.
 - Tonkin, mistaken to be a dragon. actually a mossy frog.
 - Green camels.
+- slimes usually have the same color as snails.
+- slimes commonly cover themselves with a moss carpet
+- they pretend to be a human by stacking. like a two person trench coat.

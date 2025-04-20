@@ -6,7 +6,7 @@ Sir Totally only thinks of being in the role of The Chosen One.
 
 Sir Totally weilds a very expensive sword and has a decent amount of soldiers with him. 
 
-He is finding a tall 
+He is finding a tall old man
 
 You met sir Totally on the road. 
 "I, sir Totally, asking you to lead me to a village"

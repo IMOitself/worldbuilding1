@@ -1,0 +1,13 @@
+- jellyfish produce polyp. 
+- immortal jellyfish produce cyst, if they want to die
+- butterflies turns to pupa
+- dragonfly nymph
+- grasshopper nymph
+- mr no longer
+- meekness
+- grainsenhoney
+- garlicchin
+- tred
+- the purps. animal masked people who train soldiers from other country.
+- lapwing gosling
+- Forbity. forbidden city.
