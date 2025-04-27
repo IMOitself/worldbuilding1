@@ -1,4 +1,4 @@
-Group of elite mini bosses.
+![[00516a16-c379-4a0f-8da8-66f39e42ab2a.png]]Group of elite mini bosses.
 has subordinates or army under each one.
 (so that they can be on top of the 2 man trench coat)
 - Slime #1 is dressed with a cloak, wizard hat and holds a firefly lamp. during the night, it steal lamps from the road. Fearful.

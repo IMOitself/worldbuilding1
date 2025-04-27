@@ -3,4 +3,4 @@
 - there's this king's personal knights called the Bread Knife
 - midgame, pointy wizard hats get trendy
 - Foundings, group who is tasked in collecting things
-- Slimes also has an elite group that is causing troubles across the land
+- Slimes also has an elite group called Slugs
