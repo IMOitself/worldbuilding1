@@ -8,3 +8,4 @@
 - slimes usually have the same color as snails.
 - slimes commonly cover themselves with a moss carpet
 - they pretend to be a human by stacking. like a two person trench coat.
+- oranda fish. https://www.facebook.com/WhatTheCooler/videos/1420829038927360/?mibextid=rS40aB7S9Ucbxw6v
